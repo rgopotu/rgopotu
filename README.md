@@ -1,4 +1,4 @@
-### gopoturrsde
+### - **Discord**: [gopoturrsde](https://discord.com/users/gopoturrsde)
 
 <!--
 **rgopotu/rgopotu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
